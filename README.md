@@ -7,4 +7,4 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 Você pode entrar em contato comigo 📫
 Valentina.moss@escola.pr.gov.br 
 
-![]([(https://media.tenor.com/Q2BTwPr6VFwAAAAi/pink-glitter-heart-pink-glittery-heart.gif)])
+![](https://media1.tenor.com/m/-qBsG1HwR4oAAAAC/cat-dance-dancing-cat.gif)
