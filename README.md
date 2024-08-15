@@ -8,3 +8,11 @@ Você pode entrar em contato comigo 📫
 Valentina.moss@escola.pr.gov.br 
 
 ![](https://media1.tenor.com/m/-qBsG1HwR4oAAAAC/cat-dance-dancing-cat.gif)
+
+
+
+
+
+
+
+![](https://media1.tenor.com/m/nisaHYy8yAYAAAAd/besito-catlove.gif)
